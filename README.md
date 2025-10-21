@@ -1,2 +1,2 @@
 # TO-DO-LIST
-Keep all yor 
+Keep all your primary activities on check
